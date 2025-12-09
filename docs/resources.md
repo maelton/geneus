@@ -1,0 +1,1 @@
+- [Algoritmos Genéticos - @PrOgRaMaNdO](https://youtube.com/playlist?list=PLNa5V12lHXCx-B--e8BwlmS_8GH8WAXfW&si=pmbO0e2wD1729PCE)
